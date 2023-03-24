@@ -5,4 +5,4 @@
  
  This line was added directly on site. HOW IMPRESSIVE!
 
-some tests are made righ now......... hurry up
+ And now, i'm doing an interesting conclusion.
