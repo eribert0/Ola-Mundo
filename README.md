@@ -4,3 +4,5 @@
  Made during the course's playlist
  
  This line was added directly on site. HOW IMPRESSIVE!
+
+some tests are made righ now......... hurry up
